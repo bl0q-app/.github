@@ -2,7 +2,7 @@
 
 **Empowering freelancers, teams & everyone with fair workflows.**
 
-[**Website**](https://bl0q.app) • [**Twitter**](https://twitter.com/bl0q_app) • [**Bluesky**](https://bsky.app/bl0q)
+[**Website**](https://bl0q.app) • [**Twitter**](https://twitter.com/bl0q_app) • [**Bluesky**](https://bsky.app/profile/bl0q.app)
 
 ---
 
